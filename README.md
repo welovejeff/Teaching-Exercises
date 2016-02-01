@@ -3,10 +3,17 @@ Tools I've used to get the classroom creating
 
 ## Improv Exercises
 
-No, Yes But, and Yes And Party Planning
-Random Campaign
-Count to 12
-Competitive Paper, Rock, Scissors
+### No, Yes But, and Yes And Party Planning
+Have folks try to plan a party with a partner using three different methods. First a birthday party and use "no" back and forth as a response before each person adds what the party will be. Secondly plan a Halloween party with "Yes, But". And lastly plan a New Years Party and use "Yes, And" in your exchange. Notice how the first two methods slow down the creative process, while the last one makes for better ideas.
+
+### Random Campaign
+Break into teams of four and assign each person a role of Name, Target Audience, Spokesperson, and Tagline. Then give each group a random product and a new random feature of product. Ex. A blender that disciplines children. On the fly have each person name off the name of this product, then the target, then celebrity spokesperson, and finally tagline. Now have the group create a jingle right there on the spot. You can build this out to a 5 minute exercise as well have them they build up an entire pitch.
+
+### Count to 12
+Have the entire group stand up in a circle, and explain the rules to them. The group will be counting to 12 (you can count to whatever number you want based on size of group and difficulty you choose). You'll start by having everyone look at the floor and close their eyes. The facilitator will start will "1" and someone else in the group must say "2", if someone speaks over another during the count off you'll start back at 1. This is harder than you think!
+
+### Competitive Paper, Rock, Scissors
+Pair off and explain that we'll be playing paper rock scissors with a twist. Once you loose best two out of three you must become the hype man for the winner. They'll go on to face the next contender and each competition will lead a winner with a every growing hype person group until it's an epic battle of half the crowd vs. the other half. This exercise get's loud, be warned.
 
 ## Hyper Island Exercises
 
